@@ -1,2 +1,1 @@
-# AppG4
-Đây là dự án dành cho nhóm 4 năm học 2019 - 2020
+E là nguyễn xuân tú ạ.. đây là bài làm của e.. e đã đầu tư và cố gắng rất nhiều cho bài ni.. khi chiều lúc thầy chấm bài e có hành động rất trẻ con là đã vô chơi game.. e thấy có lỗi và mong thầy bỏ qua cho.. e cám ơn ạ
